@@ -1,0 +1,1 @@
+# manifesto-novo-ser
